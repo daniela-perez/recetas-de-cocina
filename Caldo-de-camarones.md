@@ -17,10 +17,10 @@
 
 
                                  | PROCEDIMIENTO |
-                               
-                               
-                               
-         
+
+
+
+
 Lavar el camarón con guantes (quitar excremento, bigotes y patas), <br>
 después se enjuaga en dos tiempo.<br>
 <br>
@@ -36,10 +36,3 @@ Cuando empieza a hervir es momento de agregar los camarones frescos, los camaron
 El tiempo de cocción de los camarones es de 25 minutos aproximadamente. Esto puede variar de acuerdo a las porciones de ingredientes y de agua.<br>
 <br>
 Antes de retirar del fuego agregar sal al gusto pero con cuidado, hay que recordar que el camaron seco ya tiene sal.<br>
-
-
-
-
-
-                                 
-                                 
