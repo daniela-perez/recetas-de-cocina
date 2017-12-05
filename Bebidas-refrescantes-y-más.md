@@ -108,8 +108,35 @@
 [1]: https://www.youtube.com/watch?v=Xb37eVkARzM
  
  
+*ZUMO DE SANGRIA
+
+NGREDIENTES
+
+PARA EL ZUMO:
+
+500 g de uvas rojas
+125 g de arándanos
+1 naranja
+1/2 limón
+PARA DECORAR:
+
+1 plátano
+1 manzana
+70 g de arándanos
+Hielo al gusto
+
+INSTRUCCIONES
+
+Peleamos y troceamos las frutas del zumo y les quitamos las semillas.
+Troceamos el plátano y la manzana de la decoración. Reservamos.
+Introducimos las frutas del zumo poco a poco en el extractor.
+Podéis tomar el zumo tal cuál o colarlo para eliminar cualquier resto de pulpa.
+Servimos el zumo en vasos con hielo al gusto y las frutas de la decoración.
+
+Os aconsejo que limpiéis el extractor nada más terminar de hacer el zumo para que os cueste menos trabajo.
+Lo ideal es tomarlo recién hecho, aunque podéis conservarlo en la nevera en un recipiente hermético, mejor si es opaco. Llenadlo hasta arriba para evitar que se oxide. El zumo se mantendrá vivo durante hasta 72 horas. Otra opción es congelarlo si queréis prepararlo en grandes cantidades, aunque en ese caso dejad espacio libre para que el bote no explote porque el líquido se expandirá. Lo ideal es tomarlo en una semana.
  
- 
+ FUENTE: https://danzadefogones.com/zumo-de-sangria/
                          
                          
                                     
